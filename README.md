@@ -26,3 +26,6 @@ Will ich Dir gerne beantworten: Weiss ich um die Existenz eines vollkommenen Wes
 dann weiss ich auch dass mich dieses Wesen nicht täuscht, wenn es um die existierenden Dinge geht;
 denn ein täuschendes Wesen wäre nicht vollkommen. Mit dem Gottesbeweis kann ich mir also der res extensa
 sicher sein.
+Lieber Rene,
+eine Frage hätte ich noch: Woher weisst Du, dass (3) keine Täuschung ist ? Dass Du nicht getäuscht wirst,
+ist ja zum Zeitpunkt dieser Annahme noch nicht bewiesen.  
