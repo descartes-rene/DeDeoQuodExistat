@@ -21,3 +21,8 @@ Ich:
 
 Lieber Rene,
 Wozu brauchst Du den Gottesbeweis?
+Lieber Peter,
+Will ich Dir gerne beantworten: Weiss ich um die Existenz eines vollkommenen Wesens,
+dann weiss ich auch dass mich dieses Wesen nicht täuscht, wenn es um die existierenden Dinge geht;
+denn ein täuschendes Wesen wäre nicht vollkommen. Mit dem Gottesbeweis kann ich mir also der res extensa
+sicher sein.
