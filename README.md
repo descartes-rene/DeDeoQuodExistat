@@ -18,3 +18,6 @@ Ich:
     weil nur er soviel gegenständlichen Sachgehalt hat, wie seine
     Idee Bedeutungsgehalt hat. 
 (6) Also muss Gott existieren.
+
+Lieber Rene,
+Wozu brauchst Du den Gottesbeweis?
