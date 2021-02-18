@@ -6,3 +6,4 @@ Ich:
     Endliches Wesen.
 
 (1) Ich verfüge über die Idee Gottes.
+(2) Die Idee Gottes muss eine Ursache haben.
