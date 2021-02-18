@@ -14,3 +14,6 @@ Ich:
     gegenständlichem Sachgehalt geringer ist als der Grad des
     Bedeutungsgehalts, den die Idee Gottes hat. (Ich bin endlich,
     Gott ist unendlich)
+(5) Die Ursache für die Idee Gottes kann nur Gott selbst sein,
+    weil nur er soviel gegenständlichen Sachgehalt hat, wie seine
+    Idee Bedeutungsgehalt hat. 
