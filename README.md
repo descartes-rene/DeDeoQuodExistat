@@ -29,3 +29,7 @@ sicher sein.
 Lieber Rene,
 eine Frage hätte ich noch: Woher weisst Du, dass (3) keine Täuschung ist ? Dass Du nicht getäuscht wirst,
 ist ja zum Zeitpunkt dieser Annahme noch nicht bewiesen.  
+Lieber Peter,
+mmh, Das unter (3) formulierte 'Ursache >= Wirkung' Prinzip habe ich mal a priori unterstellt. Wenn ich da allerdings 
+einer Täuschung unterliege, habe ich möglicherweise einen Zirkelschluss produziert, wäre echt schade.
+Aber in jedem Fall hat die Nachwelt was zu grübeln.
