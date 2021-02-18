@@ -10,3 +10,7 @@ Ich:
 (3) Der Grad an gegenständlichem Sachgehalt, den diese Ursache
     hat, muss mindestens so hoch sein wie der Grad an Bedeutungsgehalt, den die Idee Gottes hat.
     Ursache >= Wirkung
+(4) Ich selbst kann nicht diese Ursache sein, weil mein Grad an
+    gegenständlichem Sachgehalt geringer ist als der Grad des
+    Bedeutungsgehalts, den die Idee Gottes hat. (Ich bin endlich,
+    Gott ist unendlich)
