@@ -35,4 +35,6 @@ einer Täuschung unterliege, habe ich möglicherweise einen Zirkelschluss produz
 Aber in jedem Fall hat die Nachwelt was zu grübeln.
 Lieber Rene,
 habe inzwischen noch mit P.Mersenne gesprochen, er sieht durchaus die Möglichkeit, dass Deine Gottesidee nicht unbedingt von aussen an Dich herangetragen wurde,
-er traut Dir sogar zu, dass Du sie im Laufe Deines Lebens selbst entwickelt hast. 
+er traut Dir sogar zu, dass Du sie im Laufe Deines Lebens selbst entwickelt hast.
+Lieber Peter,
+guter Punkt, muss ich auch noch drüber nachdenken, die Nachwelt wird das auch tun. Und Gruß und Dank an den guten alten Mersenne.
