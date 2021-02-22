@@ -33,3 +33,6 @@ Lieber Peter,
 mmh, Das unter (3) formulierte 'Ursache >= Wirkung' Prinzip habe ich mal a priori unterstellt. Wenn ich da allerdings 
 einer Täuschung unterliege, habe ich möglicherweise einen Zirkelschluss produziert, wäre echt schade.
 Aber in jedem Fall hat die Nachwelt was zu grübeln.
+Lieber Rene,
+habe inzwischen noch mit P.Mersenne gesprochen, er sieht durchaus die Möglichkeit, dass Deine Gottesidee nicht unbedingt von aussen an Dich herangetragen wurde,
+er traut Dir sogar zu, dass Du sie im Laufe Deines Lebens selbst entwickelt hast. 
